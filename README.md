@@ -29,7 +29,7 @@
 
 点击访问：<a href="https://hl417.pages.dev/">黑料社独家</a>
 
-点击访问：<a href="https://pi22.pages.dev/">51每日吃瓜必吃大瓜936</a>
+点击访问：<a href="https://pi22.pages.dev/">51每日吃瓜必吃大瓜</a>
 
 点击访问：<a href="https://hl379.pages.dev/">黑料大事记</a>
 
